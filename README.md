@@ -10,7 +10,7 @@ I am Abia :3
 - I am a he/they please respect those (she/her for those who have known me longer)
 - I'm a minor
 - Int if you like MTP or mystery please I have been struggling for months just to find someone 😭
-- Anyone can int just not those who are in my DNI list 👍 (Even if you happen to be an ex friend of mine :3)
+- Anyone can int just not those who are in my DNI list 👍 (Even if you happen to be an ex friend of mine :3 (yall can still int ^_^))
 - I use ";;" for special reasons. No one will ask.
 - This is for pony town <3
 
